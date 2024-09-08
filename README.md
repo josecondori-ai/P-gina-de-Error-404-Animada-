@@ -1,7 +1,10 @@
 # Página de Error 404 Animada 👻🚧
 
 
-https://github.com/user-attachments/assets/d76aa0bb-7cef-4b67-9e04-e538772a3e82
+
+
+https://github.com/user-attachments/assets/e66c28dd-a540-4e99-a7f9-449a7c5cd61b
+
 
 
 ## Visión General 🌍
